@@ -1,0 +1,6 @@
+- 👋 Hi, I’m @MicroMineYT
+- 👀 I’m interested in game design
+- 🌱 I’m currently learning nothing
+- 💞️ I’m looking to collaborate on Microsoft
+- 📫 How to reach me dm me on discord MicroMine👑#4545
+-👦 me 16
